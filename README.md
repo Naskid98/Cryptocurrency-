@@ -1,2 +1,2 @@
-# Cryptocurrency-
-Mining crypto and airdrop 
+#(Gina Daularka Da Kanka)...................
+  Manufarmu intace koyar da neman kudi a yanar gizo-gizo ta hanyar cryptocurencies, Kukasance tare damu zamu koyar daku mènene crypto? kuma tayaya ake samunshi? kuma da tayaya ake mayar da crypto ya zama kudin da kuke amfani dashi a kasarku irinsu NGN ko CFA.
